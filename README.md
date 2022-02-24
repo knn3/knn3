@@ -1,0 +1,1 @@
+Hello 👋, my name is Khoi Nguyen Nguyen. My pronounce is he/him. Currently, I'm following Computing Science major at Simon Fraser University 🤗.<br>My interests are traveling 🌎, playing sports such as soccer ⚽️, table tennis 🏓,... and listening to music 🎸 
